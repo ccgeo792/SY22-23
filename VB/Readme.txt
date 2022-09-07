@@ -1,2 +1,1 @@
-Mr. Clarke
-Period 7
+Mr. Clarke's Period 7 Software
